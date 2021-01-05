@@ -10,4 +10,4 @@ For more:
 
 Read the initiative  
 Check the social media campaign  
-Join the discussion which is currently on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
+Join the public discussion on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
