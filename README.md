@@ -8,6 +8,6 @@
 
 For more:
 
-Read the initiative  
-Check the social media campaign  
+Read the initiative (work in progress)
+Check the social media campaign (work in progress)
 Join the public discussion on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
