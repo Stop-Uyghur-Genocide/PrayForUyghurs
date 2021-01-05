@@ -8,6 +8,6 @@
 
 For more:
 
-Read the [initiative](PrayForUyghurs-Initiative.pdf) (work in progress)
-Check the [social media campaign](SocialMediaCampaign) (work in progress)
+Read the [initiative](PrayForUyghurs-Initiative.pdf) (work in progress)  
+Check the [social media campaign](SocialMediaCampaign) (work in progress)  
 Join the public discussion on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
