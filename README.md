@@ -4,4 +4,10 @@
 
 "If two of you agree here on earth concerning anything you ask, my Father in heaven will do it for you." Mt 18:19
 
-Public discussion is currently on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
+---
+
+For more:
+
+Read the initiative
+Check the social media campaign
+Join the discussion which is currently on Twitter: https://twitter.com/csomgyula/status/1344437257810358273
